@@ -1,3 +1,2 @@
-FooCoin (FOO)
-
-Blah, blah, blah.
+SimpsonCoin(SIMP)
+aka a worthless piece of shit
